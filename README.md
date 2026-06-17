@@ -1,0 +1,1 @@
+# Indikator-saham
